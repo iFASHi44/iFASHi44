@@ -1,5 +1,1 @@
-- 👋 Hi, I’m iFASHi44
-- 👀 I’m interested in Zǎo shang hǎo zhōng guó!
-- 🌱 I’m currently learning Valorant
-- 💞️ I’m looking to collaborate Valorant?
-- 📫 How to reach me, you rather not
+Bring back hood irony
